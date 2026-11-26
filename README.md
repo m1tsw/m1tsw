@@ -1,3 +1,3 @@
 
 MAIN FD's : Unstablesmp , Reverse1999 , Parasite in love , STEINS;GATE , Needy streamer overload , Class of '09 , OMORI nd so more.....
-ㅤㅤ<img width="736" height="552" alt="8cebcc5431fb58fe783ba1843660bdf3" src="https://github.com/user-attachments/assets/5f3bfafd-f994-4090-8191-927343e7a72c" />
+ㅤㅤ<img width="536" height="252" alt="8cebcc5431fb58fe783ba1843660bdf3" src="https://github.com/user-attachments/assets/5f3bfafd-f994-4090-8191-927343e7a72c" />
